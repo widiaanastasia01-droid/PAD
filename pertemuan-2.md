@@ -1,4 +1,4 @@
-# Paper Resume Pertemuan 2
+# Resume - Pertemuan 2
 
 Menurut Yuval Noah Harari, sejarah manusia terbentuk karena pengaruh cerita-cerita dan mitos yang dipercayai, sehingga dari kepercayaan yang diyakini terciptalah masyarakat dengan sistem sosial, nilai, moral, dan cara manusia dalam memahami dunia. Selain melalui cerita, kepercayaan kepada Tuhan atau Dewa berperan dalam membangun kerja sama sosial dikarenakan masyarakat yang mempercayai kekuatan-Nya memungkinkan manusia untuk membangun kota atau kerajaan. Harari juga menjelaskan bahwa pertentangan antara sais dan agama tidak seburuk itu. Pada nyatanya, agama memberikan nilai moral dan etika kepada manusia. Mmenurut Harari, terdapat 3 unsur utama dalam agama, yaitu ketetapan etis (prinsip moral/keyakinan), faktual (realitas dunia), dan pedoman praktis (aturan yang harus dilakukan). Konflik antara sains dan agama juga muncul saat pernyataan faktual bertentangan dengan hasil temuan ilmiah. Hal tersebut dikarenakan sains memiliki kemampuan dalam memeriksa klaim tersebut melalui penelitian terlebih dahulu. Contoh kasusnya yaitu, Donasi Konstantin pada masa Eropa pertengahan. 
 
